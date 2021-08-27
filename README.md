@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LeuzziLuigi
+- 👀 I’m interested in ... video games and web apps
+- 🌱 I’m currently learning ... machine learning
+- 💞️ I’m looking to collaborate on ... anything intresting
+- 📫 How to reach me ... you already know
